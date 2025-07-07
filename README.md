@@ -13,6 +13,6 @@
 平台无广告，你可以专注于影片，享受流畅观看。所有数据加密，保障隐私安全，无需注册，直接访问即可观看。
 如果你需要一个免注册、无广告、安全的日本AV观看平台，这里是理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/tr20250707/tr20250707 ）</span>
 
 
